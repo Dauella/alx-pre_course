@@ -1,1 +1,1 @@
-My first readme
+Find a way to feel good about yourself
